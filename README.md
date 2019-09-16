@@ -1,0 +1,2 @@
+# Shine
+my stock
